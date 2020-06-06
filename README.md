@@ -1,6 +1,6 @@
 # Audiobooks-Robert-Kiyosaki-Andrew-Yang-Money
 1. https://www.youtube.com/watch?v=gliZHyovI7c 
-
+https://www.google.com/search?q=rich+dad+crypto+youtube&rlz=1C1ASUT_enUS569US569&oq=rich+dad+crypto+youtube&aqs=chrome..69i57j0l3.7939j0j7&sourceid=chrome&ie=UTF-8
 # https://www.youtube.com/results?search_query=bitcoin+robert+kiyosaki
 
 2.  https://github.com/kevin11h/Audiobook-Increase-Financial-IQ-Robert-Kiyosaki-youtube-Video 
